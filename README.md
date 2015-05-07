@@ -3,7 +3,7 @@
 
 ----
 ## テーマ
-[不条理](http://ja.wikipedia.org/wiki/不条理)に立ち向かう少女
+「[不条理](http://ja.wikipedia.org/wiki/不条理)に立ち向かう少女」の物語のOP音楽
 
 ----
 ## キャッチコピー
