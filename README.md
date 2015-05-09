@@ -1,5 +1,6 @@
 # Other-Side-Suicide [C168]
 
+Listen [https://soundcloud.com/johiroshi/c168](https://soundcloud.com/johiroshi/c168)
 
 ----
 ## テーマ
